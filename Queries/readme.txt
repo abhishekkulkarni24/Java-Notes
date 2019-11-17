@@ -1,1 +1,1 @@
-Hi collabrators submit your queries about java programing if any.
+Hi Collaborators submit your queries about java programing if any.
